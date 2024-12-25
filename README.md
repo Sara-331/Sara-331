@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sara Alsuhaibani
-- 👀 I’m interested in coding
+- 👀 I’m interested in UX/ UI coding and virtual World.
 - 🌱 I’m currently learning in imamu University and Tuwaiq Academy.
 - 💞️ I’m looking to collaborate on game development.
 -  How to reach my E-mail
